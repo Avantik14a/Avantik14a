@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning mca 1st year 
 - 💞️ I’m looking to collaborate on
 - 📫 How to reach me 
-- 😄 Pronouns: 
+- 😄 Pronouns: Avantika 
 - ⚡ Fun fact:
 
 <!---
